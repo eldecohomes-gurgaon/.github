@@ -1,4 +1,4 @@
-#Terra & SOL: Essential Factors to Evaluate When Selecting a Residence in Gurugram
+# Terra & SOL: Essential Factors to Evaluate When Selecting a Residence in Gurugram
 
 ## Identifying a Residence That Aligns With Your Lifestyle
 
